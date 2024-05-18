@@ -5,6 +5,6 @@
 * **Year Level:** 2nd Year 
 
 #
-* **Age:** 19
+* **Age:** 20
 * **Hobbies:** Playing Computer Games 💻, Watching Movies/Anime 📺, Swimming 🏊‍♂️
 * **Address:** Escalades East Tower, 20th avenue
